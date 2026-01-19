@@ -3,7 +3,7 @@
 
 ## ㅤㅤㅤㅤGREETINGS
 
-╰┈  .Mascelious or Marylya ♡ 15 Bisexual, .He / They or idk
+╰┈  .Mascelious or Marylya ꯴ 15 Cupiospike, .He / it
        
   > .Autistic Weirdo with Bipolar NPD & ASPD
 
