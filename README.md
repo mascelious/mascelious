@@ -1,4 +1,5 @@
-## ![797a974d6e497c21b99e5f7e566f8f51](https://github.com/user-attachments/assets/7298ccee-e1ab-4dcf-b834-63e954da9ed4)
+## ![photo_2026-02-03_19-47-39](https://github.com/user-attachments/assets/7d8eea26-8636-4580-8cf1-072c173a03a8)
+
 
 
 ## ㅤㅤㅤㅤGREETINGS
@@ -11,4 +12,4 @@
 
 
 
-## > .fuck you
+## > .kill me
